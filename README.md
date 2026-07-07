@@ -13,7 +13,9 @@ Hi, I'm **Favour Adaku Ndubuisi**, a passionate Data Analyst and Agricultural Ec
 
 I am continuously learning, building practical projects, and expanding my skills in data analytics and artificial intelligence. My goal is to use data-driven solutions to help organizations make better decisions and create business value.
 
-### 📫 Connect with Me
-- **GitHub:** https://github.com/ndubuisifavour500-crypto
-- **LinkedIn:** https://www.linkedin.com/in/favour-adaku-ndubuisi
-- **
+## 🤝 Let's Connect
+
+- 💼 LinkedIn: https://www.linkedin.com/in/favour-adaku-ndubuisi
+- 💻 GitHub: https://github.com/ndubuisifavour500-crypto
+- 📷 Instagram: https://www.instagram.com/favour.ndubuisi.wealth
+- 🐦 X (Twitter): https://x.com/favour65887
