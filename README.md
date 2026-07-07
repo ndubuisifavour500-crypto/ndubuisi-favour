@@ -19,3 +19,7 @@ I am continuously learning, building practical projects, and expanding my skills
 - 💼 LinkedIn: [Favour Adaku Ndubuisi](https://www.linkedin.com/in/favour-adaku-ndubuisi)
 - 🐦 X: [@favour65887](https://x.com/favour65887)
 - 📷 Instagram: [@favour.ndubuisi.wealth](https://www.instagram.com/favour.ndubuisi.wealth)
+- Gmail: ndubuisifavour500@gmail.com
+  
+ ## Thanks for visiting my profile! Feel free to explore my projects and connect with me."
+
